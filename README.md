@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-I am Crab, Crab です。
+I am Crab, Crab.
